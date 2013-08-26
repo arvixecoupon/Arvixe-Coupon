@@ -11,10 +11,13 @@ Sorry, no 30% coupon available now ( update 08-26-2013 )
 
 If the 30% discount is not available, there is also a 20% discount code for you.
 
-**GITHUBCOUPON** ( update 08-26-2013 )
+**GITHUBCOUPON** 
+( update 08-26-2013 )
 
 Demo:
 
 ![30% Arvixe coupon](http://i.imgur.com/0ULubiG.png)
 
-#Copy ✄ **GITHUBCOUPON** ( update 08-26-2013 )
+Copy ✄ ✄ ✄ ✄ 
+*GITHUBCOUPON** 
+( update 08-26-2013 )
