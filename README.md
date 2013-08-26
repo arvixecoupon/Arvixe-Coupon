@@ -19,5 +19,5 @@ Demo:
 ![30% Arvixe coupon](http://i.imgur.com/0ULubiG.png)
 
 Copy ✄ ✄ ✄ ✄ 
-*GITHUBCOUPON** 
+**GITHUBCOUPON**
 ( update 08-26-2013 )
